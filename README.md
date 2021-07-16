@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Dɘvɩɭ Hʌcĸɘʀ(@devilhackers22)
 - 👀 I’m interested in Hacking
-- 💞️ I’m looking to Create an Hacking Community
+- 💞️ I’m looking for a GF
 - 📫 How to reach me👉🏻Telegram Group @devilhackers22
 - 🌱 we are Hackers
 
